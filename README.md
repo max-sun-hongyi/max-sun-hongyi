@@ -6,7 +6,6 @@
 - 👯 I’m looking to collaborate on translation betewen Chinese <-> English
 - 💬 Ask me about anything
 - 📫 How to reach me: hongyisun97@gmail.com 
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm additcted to sports- badminton, basketball and soccer. Learning Tennis, freestyle swimming and free diving.  
 
 <!--
